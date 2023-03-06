@@ -3,8 +3,6 @@
 
 - 📫 How to reach me **Yousfahmed2@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1XntVngHWkCNkelJIdigGNkkF49gKs3nQ/view?usp=sharing)
-
 
 
 <h3 align="left">Connect with me:</h3>
